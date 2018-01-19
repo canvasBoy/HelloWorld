@@ -2,10 +2,9 @@
 my name is canvasBoy
 ***
 #### <center>别哭我最爱的人
-<center>雷婷
+<center>雷婷  
 
-
-<center>别哭我最爱的人  
+别哭我最爱的人  
 
 今夜我如昙花绽放  
 
